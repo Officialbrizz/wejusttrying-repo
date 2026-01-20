@@ -1,3 +1,5 @@
 # WEJUSTTRYING
 
 Here is my first Github Touch.!
+
+# AND I GONNA BE 1ST DEVELOPER IN TANZANIA
